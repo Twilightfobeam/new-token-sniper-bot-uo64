@@ -1,4 +1,4 @@
-# 
+# new token sniper bot advanced Bot - degen-coin-scanning and liquidity-pool-analysis is the best new token sniper bot, featuring degen-coin-scanning and liquidity-pool-analysis.
 
 
 
